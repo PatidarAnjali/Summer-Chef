@@ -1,3 +1,5 @@
+![Profile picture](https://github.com/user-attachments/assets/4deee0f8-be69-4668-a554-d2f47355cfe7)
+
 When winter rolls around, everyone is caught up with school, work, and the daily grind. But summer? That’s the time to relax, unwind, and enjoy yourself. This summer, let your inner chef shine and create mouth-watering recipes. 
 
 Welcome to **Summer Chef**, the ultimate cooking challenge app that transforms your kitchen into a thrilling summer showdown! Get ready to cook, compete, and conquer!
